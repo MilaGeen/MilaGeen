@@ -6,4 +6,4 @@
 - 💞️ I’m looking to collaborate on projects of health.
 - 📫 How to reach me: camilageen@gmail.com !
 - 💁‍♀️ Pronouns: She/Her.
-- 😅 Fun fact: I love to work with makeup. 
+- 😅 Fun fact: I love to work wearing makeup. 
